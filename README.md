@@ -1,1 +1,1 @@
-https://BIThovenKostyukevich.github.io/shelter/Shelter2.0/Shelte.html
+https://BIThovenKostyukevich.github.io/shelter/Shelte2.0/Shelte.html
