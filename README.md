@@ -1,1 +1,1 @@
-https://BIThovenKostyukevich.github.io/shelter/shelter%20test/index1280.html
+https://BIThovenKostyukevich.github.io/shelter/shelter2.0/index1280.html
